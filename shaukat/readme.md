@@ -1,1 +1,0 @@
-ini kerja syaukat
